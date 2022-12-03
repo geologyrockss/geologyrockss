@@ -1,5 +1,4 @@
-causing trouble where there is trouble to be caused (in my room it's raining outside)
-enjoy
+just a silly goofy dude
 
 <!---
 geologyrockss/geologyrockss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
